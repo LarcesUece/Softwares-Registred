@@ -1,1 +1,1 @@
-# Softwares Registrated
+# Softwares Registred
